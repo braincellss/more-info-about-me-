@@ -1,8 +1,11 @@
 # more-info-about-me-
 Hai I'm Rory 
 I like mafioso and chance
-I  like to draw and MAYBE animate
+ 
+ I  like to draw and MAYBE animate
+
 i'm a multifandom 
+
 people can call me Jasper or Rory, I don'ttt mind  
 
 I'm comfortable with jokes 
