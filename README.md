@@ -1,5 +1,6 @@
 # more-info-about-me-
 Hai I'm Rory 
+
 I like mafioso and chance
  
  black
@@ -8,13 +9,11 @@ I like mafioso and chance
 
 I'm a multifandom 
 
-people can call me Jasper or Rory, I don'ttt mind  
+people can call me Jasper or Rory, I don'ttt mind 
 
-I'm comfortable with jokes 
-
- ( things that I like forsaken, die of death, and more) 
+ ( My interest forsaken, die of death, and more) 
  
- (DNI LIST: 'darkship'/proship) 
+ (DNI LIST: 'darkship'/'proship') 
  
 pls do not copy my skins, I hid freely 
 
