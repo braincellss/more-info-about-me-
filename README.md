@@ -5,7 +5,7 @@ I like mafioso and chance
  
  black
  
- I  like to draw and animate
+   like to draw and animate
 
 I'm a multifandom 
 people can call me Jasper or Rory, I don'ttt mind 
@@ -16,10 +16,10 @@ people can call me Jasper or Rory, I don'ttt mind
  
 pls do not copy my skins, I hid/block/unfriend freely
 
-I like jokes, but please don't take it the wrong way..
+ like jokes, but please don't take it the wrong way..
 
 
-I um overthink so sory..
+  overthink so sory..
 
 If I did something wrong, please whisper to me so I can fix  what was wrong 
 
