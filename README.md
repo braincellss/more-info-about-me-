@@ -18,7 +18,7 @@ pls do not copy my skins, I hid freely
 
 If I did something wrong, please whisper to me so I can fix  what was wrong 
 
-I can be a bit impulsive, ^n^ so I apologize if I act this way  please understand if i get upset esialy 
+I can be a bit impulsive, ^n^ so I apologize if I act this way  please understand if i get upset easily 
 
 
 FEEL FREE TO INT!
