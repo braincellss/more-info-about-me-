@@ -16,7 +16,7 @@ people can call me Jasper or Rory, I don'ttt mind
  
 pls do not copy my skins ( hid/block/unfriend freely)
 
- like jokes, but please don't take it the wrong way..
+ like jokes, but please don't take it  too far...
 
 
   overthink so sory..
