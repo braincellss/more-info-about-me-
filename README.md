@@ -14,7 +14,10 @@ people can call me Jasper or Rory, I don'ttt mind
  
  (DNI LIST: 'darkship'/'proship') 
  
-pls do not copy my skins, I hid/block/unfriend freely 
+pls do not copy my skins, I hid/block/unfriend freely
+
+I like jokes, but please don't take it the wrong way..
+
 
 I um overthink so sory..
 
