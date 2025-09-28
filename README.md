@@ -16,9 +16,11 @@ people can call me Jasper or Rory, I don'ttt mind
  
 pls do not copy my skins, I hid/block/unfriend freely 
 
+I um overthink so sory..
+
 If I did something wrong, please whisper to me so I can fix  what was wrong 
 
-I can be a bit impulsive, ^n^ so I apologize if I act this way  please understand if i get upset easily 
+I can be a bit impulsive, ^n^ so I apologize if I act this way. Please understand if i get upset easily 
 
 
 FEEL FREE TO INT!
