@@ -1,5 +1,5 @@
 # more-info-about-me-
-Hai I'm Rory 🏳️‍🌈
+Hai I'm Rory 
 
 I like mafioso and chance
  
