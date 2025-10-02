@@ -31,6 +31,6 @@ I can be a bit impulsive, ^n^ so I apologize if I act this way. Please understan
 
 FEEL FREE TO INT!/or w2i (ˆᗜˆ)
 
-my discord is skootle_ if you wanna chat with me more (˶˃ ω ˂˶)
+my discord is skootle_ if you wanna chat with me more (˶- ω -˶)
 
 Thanks for reading! ^_^
