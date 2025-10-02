@@ -1,6 +1,8 @@
 # more-info-about-me-
 Hai I'm Rory 
 
+ he prns
+ 
 I like mafioso and chance
  
  black
