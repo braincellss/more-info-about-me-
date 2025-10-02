@@ -21,13 +21,13 @@ pls do not copy my skins ( hid/block/unfriend freely)
  like jokes, but please don't take it  too far...
 
 
-  overthink so sory..
+  overthink so sory..(´･ω･`) 
 
 If I did something wrong, please whisper to me so I can fix  what was wrong 
 
 I can be a bit impulsive, ^n^ so I apologize if I act this way. Please understand if i get upset easily 
 
 
-FEEL FREE TO INT!
+FEEL FREE TO INT!/or w2i (ˆᗜˆ)
 
 Thanks for reading! ^_^
