@@ -7,7 +7,7 @@ I like mafioso and chance
  
  black
  
-   like to draw and animate
+   like to draw and animate (^ω^)
 
 I'm a multifandom 
 people can call me Jasper or Rory, I don'ttt mind 
@@ -27,6 +27,7 @@ If I did something wrong, please whisper to me so I can fix  what was wrong
 
 I can be a bit impulsive, ^n^ so I apologize if I act this way. Please understand if i get upset easily 
 
+ be nice  to me  ｡ﾟ(ﾟ´ω`ﾟ)ﾟ｡
 
 FEEL FREE TO INT!/or w2i (ˆᗜˆ)
 
