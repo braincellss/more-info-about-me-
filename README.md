@@ -2,18 +2,19 @@
 Hai I'm Rory 
 
  he prns
- 
+
+I'm sensitive and anxious about things  ( ^ o ^ ;; )  
 I like mafioso and chance
  
  black
  
    like to draw and animate (^ω^)
 
-I'm a multifandom 
+I'm a multifandom  
 people can call me Jasper or Rory, I don'ttt mind 
 
  ( My interest forsaken, die of death, and more) 
- 
+
  (DNI LIST: 'darkship'/'proship'/'pdf') 
  
 pls do not copy my skins ( hid/block/unfriend freely)
