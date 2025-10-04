@@ -3,7 +3,7 @@ Hai I'm Rory
 
  he prns
 
-I'm sensitive and anxious about things  ( ^ o ^ ;; )  
+I'm  anxious about things,  so please be aware  ( ^ o ^ ;; )  
 I like mafioso and chance
  
  black
