@@ -9,7 +9,7 @@ I like mafioso and chance
  
  black
  
-   like to draw and animate (^ω^)
+   like to draw and animate ^^
 
 I'm a multifandom  
 
