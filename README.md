@@ -25,7 +25,7 @@ pls do not copy my skins ( hid/block/unfriend freely)
 
 If I did something wrong, please whisper to me so I can fix  what was wrong 
 
-I can be a bit impulsive, ^n^ so I apologize if I act this way. Please understand if i get upset easily 
+I can be a bit impulsive,  so I apologize if I act this way. Please understand if i get upset easily 
 
  be nice  to me  
 
